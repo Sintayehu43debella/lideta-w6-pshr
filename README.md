@@ -1,0 +1,1 @@
+# lideta-w6-pshr
